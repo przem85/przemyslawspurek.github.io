@@ -1,1 +1,0 @@
-# przemyslawspurek.github.io
